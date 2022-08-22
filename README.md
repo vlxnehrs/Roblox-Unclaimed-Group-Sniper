@@ -2,4 +2,4 @@
 This is a group sniper this is a very op tool.
 
 # credits
-Owner: $$ Easy#3574
+Owner: !! qrs v2#7310
